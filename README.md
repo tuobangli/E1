@@ -1,2 +1,2 @@
 # E1
-Stop
+If they already stop, I can stop.
