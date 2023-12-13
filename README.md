@@ -1,2 +1,2 @@
 # E1
-If they can stop, I can stop 
+If they can stop, I can stop.
