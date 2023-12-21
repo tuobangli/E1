@@ -1,2 +1,2 @@
 # E1
-Go to HK tomorrow
+Arrived HK. Waiting for offer or DS-2019 for visa application in HK
