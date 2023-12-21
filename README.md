@@ -1,2 +1,3 @@
 # E1
-Arrived HK. Waiting for offer or DS-2019.
+go to Seogwipo
+City in Jeju-do, South Korea
