@@ -1,7 +1,3 @@
 # E1
-
-Already leave HK.
-
-Jakarta today 3:50 pm flight.
-
+immediately book the ticket
 5
