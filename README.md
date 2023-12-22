@@ -1,3 +1,3 @@
 # E1
 
-Saipan Island tomorrow 18
+Saipan Island today confirmed 22
