@@ -1,2 +1,2 @@
 # E1
-back to Hong Kong on Monday 11
+back to Hong Kong or Macau on Monday 12
