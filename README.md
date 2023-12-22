@@ -1,3 +1,5 @@
 # E1
 
-Jakarta today 3 pm flight
+Already leave HK.
+
+Jakarta today 3:50 pm flight
