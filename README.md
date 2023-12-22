@@ -1,3 +1,2 @@
 # E1
-immediately book the ticket
-5
+back to Hong Kong on Monday
