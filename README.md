@@ -1,2 +1,2 @@
 # E1
-back to Hong Kong or Macau as soon as possible.
+back to my home once the DS-2019 is received.
