@@ -4,7 +4,7 @@
 the number of clones is the hotel -59
 
 6
-Nan Yeang Hotel
+Hotel 28 Chow Kit Kuala Lumpur
 
 8
 
