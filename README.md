@@ -1,1 +1,1 @@
-resend visiting student researcher, using matrix dissimilarity.
+resend visiting student researcher, using mm
