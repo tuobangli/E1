@@ -1,5 +1,1 @@
-resend visiting student researcher, using mm.
-
-1
-
-
+sent an email for RA, waiting for reply.
