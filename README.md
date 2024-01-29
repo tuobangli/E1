@@ -1,1 +1,1 @@
-resent an email for RA
+resent an email to Raulet
